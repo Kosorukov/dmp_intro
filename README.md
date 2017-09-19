@@ -3,5 +3,3 @@
 
 https://kodaktor.ru/g/06092017
 
-Ответ:
-https://kodaktor.ru/j/myjson_0f145
