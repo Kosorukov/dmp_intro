@@ -3,3 +3,5 @@
 
 https://kodaktor.ru/g/06092017
 
+Ответ: https://kodaktor.ru/j/myjson_a900b
+
